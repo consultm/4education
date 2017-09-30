@@ -11,4 +11,4 @@
 
 ![Image](http://www.silverwhiskcooking.com/content/panel1/img/Whisk%20with%20reflection-01.png)
 
-[This is CNN](http://cnn.com)
+[mailto:mlbculinaryconsultants@gmail.com]
